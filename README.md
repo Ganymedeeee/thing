@@ -1,3 +1,3 @@
 # thing
 yeah
-<img width="737" height="425" alt="Image" src="https://github.com/user-attachments/assets/4c01f4c5-0c79-4dda-8bf2-651491281bc4" />
+! [](https://i.pinimg.com/736x/c3/62/4a/c3624a8227997c7b53491d337b6ab0a0.jpg)
